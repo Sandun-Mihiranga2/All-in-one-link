@@ -1,6 +1,6 @@
 
 
-# Bing Chat
+## Bing Chat
 
 Bing Chat is an AI chatbot that generates text. You can use it to write stories, messages, or even programming code. You can use Bing Chat AI as a virtual tutor for almost any subject.
 
