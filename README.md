@@ -1,27 +1,18 @@
+## දැනුම සොයා යන ඔබ වෙනුවෙන්ම ඇති අපගේ සමූහය සමග එක්වන්න 🔥
 
+📌 ලෝකය පිලිබඳ  දැනගන්න 🌍
+📌 ලෝකයේ සිදුවන පුදුම සහ අමුතු දේවල් දැනගන්න 😱
+📌 තාක්ශනික කරුණු 👩‍💻 
+📌 IQ Test 🧠  
+📌 Motivation 💫
+📌 Movie 🎥 
 
-Bing Chat is an AI chatbot that generates text. You can use it to write stories, messages, or even programming code. You can use Bing Chat AI as a virtual tutor for almost any subject.
+## ඇතුලු තවත් බොහෝ දේ දැනගන්න, දැනුම බෙදාගන්න අපහා එක්වන්න 🤝
 
-## What can the new bing chat do
+## අපගේ දැනුම් ගබඩාව - Our knowledge base
 
-With the new Bing, you can ask the AI chatbot questions and get detailed, human-like responses with footnotes that link back to the original sources and up-to-date information.
+https://chat.whatsapp.com/LeVda0mpxXgFLwVRDwAMNB
 
+## 🤍🌍 දැනුම සොයන ඔබගෙ මිතුරන් අතරේ මෙය බෙදාගන්න 🌍🤍
 
-## How to Chat With Bing Chat AI ?
-
-
-**To chat with Bing AI, you can follow these steps:**
-
-
-* Visit the "Bing Chat AI" in your web browser.
-
-* Look for the Chat feature or the "Chat with Bing" option on the Bing homepage.
-
-* Click the Chat feature or "Chat with Bing" option to start a conversation.
-
-* A chat window will open where you can interact with the Bing AI.
-
-* Type your message or question in the chat window and hit Enter.
-
-* Bing AI will respond to your query with relevant information, suggestions, or answers based on its own programming and the available data.
-
+*© 𝙰𝚕𝚕 𝚒𝚗 𝚘𝚗𝚎
