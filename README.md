@@ -9,7 +9,7 @@
 
 ## අපගේ දැනුම් ගබඩාව - Our knowledge base
 
-https://chat.whatsapp.com/LeVda0mpxXgFLwVRDwAMNB
+Join now [Touch here](https://chat.whatsapp.com/LeVda0mpxXgFLwVRDwAMNB)
 
 ## 🤍🌍 දැනුම සොයන ඔබගෙ මිතුරන් අතරේ මෙය බෙදාගන්න 🌍🤍
 
